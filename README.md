@@ -1,16 +1,15 @@
-## Hi there 👋
+# Olá e bem vindo ao meu perfil! 👋
 
-<!--
-**Edson2352/Edson2352** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### Me chamo Edson Leandro Kerneski
 
-Here are some ideas to get you started:
+- Estudo no Colégio Padre Claudio Morelli. 🏫
+- Estou estudando progamação com meu professor Alexandre. 👨‍🏫
+- Utilizo a plataforma [Alura](https://www.Alura.com.br) para cursar progamaçâo de forma prática. 💻 
+- Gosto de jogar videogames e assistir animes nas horas vagas. 🎮
+- 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- Você pode entar em contato comigo aqui: 📫
+
+  edson.kerneski@escola.pr.gov.br
+
+![]()
