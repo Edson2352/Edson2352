@@ -8,8 +8,10 @@
 - Gosto de jogar videogames e assistir animes nas horas vagas. 🎮
 - Meu anime favorito é **JoJo's Bizarre Adventures**
 
+
 - Você pode entar em contato comigo aqui: 📫
 
   edson.kerneski@escola.pr.gov.br
 
-![https://tenor.com/pt-BR/view/dio-the-world-power-charge-gif-13331683]()
+
+![](https://media1.tenor.com/m/R_NQbI9vk1UAAAAC/dio-the-world.gif)
