@@ -12,4 +12,4 @@
 
   edson.kerneski@escola.pr.gov.br
 
-![](https://tenor.com/pt-BR/view/dio-the-world-power-charge-gif-13331683)
+![https://tenor.com/pt-BR/view/dio-the-world-power-charge-gif-13331683]()
