@@ -18,6 +18,6 @@ edson.kerneski@escola.pr.gov.br
 
 ![](https://media1.tenor.com/m/BaJRrw7JCT0AAAAC/killer-queen-bites-the-dust.gif)
 
-![](https://tenor.com/8W9D.gif)
+![](https://media1.tenor.com/m/NXc3fvu-2DsAAAAd/jo-jos-bizarre-adventure-golden-wind.gif)
 
 ![](https://media1.tenor.com/m/IPpXGPeQ8JIAAAAd/pucci-made-in-heaven.gif)
